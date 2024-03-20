@@ -14,3 +14,5 @@
 
 
 i also might release discord in 20 days :^ ) ill update it every day.
+
+(educational purposes)
